@@ -1,2 +1,2 @@
 # Welcame-To-Member
-Selamat Datang Di Pusat Pendidikan SMK Pancasila * slogohimo
+Selamat Datang Di Pusat Pendidikan SMK Pancasila 8 slogohimo
